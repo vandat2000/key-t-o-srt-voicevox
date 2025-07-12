@@ -1,0 +1,1 @@
+# key-t-o-srt-voicevox
